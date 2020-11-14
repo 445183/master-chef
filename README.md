@@ -11,7 +11,7 @@ paneer kolhapuri recipe | how to make spicy paneer kolhapuri gravy
  SERVINGS:4
  
  SERVINGS
- AUTHOR:HEBBARS KITCHEN
+ AUTHOR:Aryan the master chef
  COURSE:CURRY
  CUISINE:NORTH INDIA
  Print Recipe  Pin Recipe
